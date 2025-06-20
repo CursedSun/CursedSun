@@ -15,14 +15,5 @@
 !! ꒰ Interests ꒱ 🪼⌗ identity v, Warframe, Hollow Knight, Fortnite, Devil May Cry, Resident Evil, etc
 !! ꒰ Dislikes ꒱ 🪼⌗ *Hellaverse* {Hazbin, Helluva} , dni 
 !! ꒰ Twitter ꒱ 🪼⌗ @connorlieus
-!! fav stuff: yeah um scary space stuff haha im a nightmare freak
-
-
-!!!!!!!!!!!! DNI LIST !!!!!!!!!!!!!
-
-1- people who make nazi jokes
-2- racist people of ANY race, stop saying i"blackwashed" characters.
-3- concerning people
-4- cannibalism fake stories.
-5- made up identities 
-6- people who force someone to ship something they don't want to
+!! fav stuff: yeah um scary space stuff haha im a nightmare freak i love getting heart attacks at 13AM 
+im schizophrenic, autistic, and i have strong anxiety or sometimes enthusiasm muscle memory kick, i act like an age regressed person sometimes. although i rarely use tonetags
