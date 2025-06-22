@@ -16,4 +16,4 @@
 !! ꒰ Dislikes ꒱ 🪼⌗ *Hellaverse* {Hazbin, Helluva} , dni 
 !! ꒰ Twitter ꒱ 🪼⌗ @connorlieus
 !! fav stuff: yeah um scary space stuff haha im a nightmare freak i love getting heart attacks at 13AM 
-im schizophrenic, autistic, and i have strong anxiety or sometimes enthusiasm muscle memory kick, i act like an age regressed person sometimes. although i rarely use tonetags
+im schizophrenic, autistic, and i have strong anxiety or sometimee i act like an age regressed person. btw i rarely use tonetags
