@@ -12,7 +12,7 @@
 
 ˙✧˖° 🫧 ⋆｡˚꩜🪼⋆.ೃ࿔*:･
 𓆝 𓆟 𓆞𓆝 𓆟 𓆞
-!! ꒰ Interests ꒱ 🪼⌗ identity v, Warframe, Hollow Knight, Fortnite, Devil May Cry, Resident Evil, etc
+!! ꒰ Interests ꒱ 🪼⌗ identity v, Warframe, geometry dash, Hollow Knight, Fortnite, Devil May Cry, Resident Evil, cocotama, beyblade , sk8, project sekai
 !! ꒰ Dislikes ꒱ 🪼⌗ *Hellaverse* {Hazbin, Helluva} , dni 
 !! ꒰ Twitter ꒱ 🪼⌗ @connorlieus
 !! fav stuff: yeah um scary space stuff haha im a nightmare freak i love getting heart attacks at 13AM 
